@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Fight Club
+2. Rocky
+3. Inglorious Bastards
